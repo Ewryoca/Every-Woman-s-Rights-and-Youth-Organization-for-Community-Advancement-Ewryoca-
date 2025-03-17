@@ -1,0 +1,2 @@
+# Every-Woman-s-Rights-and-Youth-Organization-for-Community-Advancement-Ewryoca-
+EwryocaHub – Central repository for Ewryoca projects. EwryocaImpact – Showcasing initiatives and impact. EwryocaSafe – Safeguarding and PSEA knowledge base. EwryocaData – Research, assessments, and M&amp;E. Description: "Ewryoca is a youth-led collective (50% local, 25% IDPs, 25% refugees) driving advocacy, capacity building, and impactful community 
